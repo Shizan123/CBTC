@@ -1,0 +1,1 @@
+My name is Shizan Atique Khan, and I am currently pursuing a B.Tech in Electronics and Communication Engineering at MAKAUT. Alongside my studies, I have developed a strong passion for software development and web design. I am eager to leverage my skills and gain hands-on experience with new technologies during my internship at CipherByte Technologies.
